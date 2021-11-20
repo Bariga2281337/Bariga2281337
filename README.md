@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bariga2281337
 - 👀 I’m interested in programm
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning AltsGTU
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me chekmurin03@mail.ru
 
